@@ -1,6 +1,6 @@
 ## Hi! I'm Clara Lívia 🙋🏻‍♀️
 
-💜 I'm currently studying Python and Graphic Design 
+💜 I'm currently studying Web Design 
 
 💙 I want to major in Computer Science
 
