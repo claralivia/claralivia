@@ -1,4 +1,4 @@
-## Hi! I'm Clara Lívia 🙋🏻‍♀️
+# Hi! I'm Clara Lívia 🙋🏻‍♀️
 
 💜 I'm currently studying Web Design 
 
